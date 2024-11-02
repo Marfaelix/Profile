@@ -1,2 +1,2 @@
 # Profile
-Mencoba Akun
+Mencoba Akun Belajar SMK.id
